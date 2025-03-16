@@ -2,7 +2,7 @@
 
 📌 Introdução
 
-O $IMPELULA - IMPEACHMENT LULA OFICIAL é um ativo digital baseado na blockchain Solana, desenvolvido para combinar tecnologia, resistência política e impacto social.
+O $IMPELULA  - IMPEACHMENT LULA OFICIAL é um ativo digital baseado na blockchain Solana, desenvolvido para combinar tecnologia, resistência política e impacto social.
 
 O projeto utiliza a descentralização para mobilizar apoiadores contra a corrupção e possibilita ações concretas de assistência social para cidadãos afetados pela crise econômica no Brasil. Além disso, será lançado na plataforma M3M3, garantindo liquidez bloqueada e segurança para investidores.
 
