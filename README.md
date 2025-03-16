@@ -119,6 +119,5 @@ Com governança descentralizada, impacto econômico tangível e um modelo de liq
 Seja parte dessa revolução!
 
 📌 Links Oficiais:
-🔗 [Website Oficial]
-🔗 [Solscan]
-🔗 [DEXs
+🔗 https://impeachtmentlulatoken.com
+
